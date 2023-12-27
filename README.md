@@ -2,3 +2,6 @@
 cloud computing
 22 tahun
 jam kuliah: 19:50
+matakuliah
+kopi
+pulang malam
